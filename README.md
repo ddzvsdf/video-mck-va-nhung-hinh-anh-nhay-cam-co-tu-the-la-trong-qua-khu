@@ -2,9 +2,17 @@
 
 MCK và loạt hình ảnh nhạy cảm, gây tranh cãi trong quá khứ
   
-Yến Thanh
-Thứ tư, ngày 06/11/2024 07:00 AM (GMT+7)
-Những hình ảnh bị cho là phản cảm của MCK đang được khán giả chia sẻ trở lại trên mạng xã hội.
+MCK lộ ảnh 'full HD' không che chắn 'bộ phận nhạy cảm' khiến mạng xã hội chấn động Tác giả: Trí Tú
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+Tối 5/11, mạng xã hội Việt Nam chấn động khi MCK lộ ảnh nóng "khỏa thân" 100%, không che chắn "bộ phận nhạy cảm". Từ vóc dáng, hình xăm trên người cho đến góc chụp quen thuộc không thể là ai khác ngoài giọng ca Chìm Sâu.
 
 Dân Việt trên  
 Nam rapper bất ngờ gục ngã ngay trên sân khấu khiến khán giả bàng hoàng
